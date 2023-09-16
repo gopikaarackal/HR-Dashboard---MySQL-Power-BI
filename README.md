@@ -15,7 +15,7 @@ There are more male employees
 
 The most dominant race is White and least is the Native Hawaiian or American Indian
 
-Around 70% of the employees wotk at the headquarters and the rest remotely
+Around 70% of the employees work at the headquarters and the rest remotely
 
 5 Age Groups were created and it is found that a large number of employees comes under the age group 25-34 followed by 35-44
 
